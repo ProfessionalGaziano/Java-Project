@@ -26,8 +26,7 @@ Life is a precious opportunity, and every moment holds the potential for a new e
 
 Join me on this epic adventure through my blog and social channels. Stay updated on new chapters, breathtaking stories, and tips for traveling through time and space.
 
-- Website: [www.myadventureblog.com](https://www.myadventureblog.com)
-- Instagram: [@myadventureblog](https://www.instagram.com/myadventureblog)
-- Twitter: [@myadventures](https://twitter.com/myadventures)
+- Instagram: 
+- Facebook: 
 
 Come along as we weave the stories of the past, present, and future, and together uncover the secrets the world has to offer.
